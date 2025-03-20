@@ -1,2 +1,2 @@
-# MahmoudYT
+# Skill for all
 SOLO DEVELOPER LEANER
